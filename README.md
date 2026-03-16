@@ -1,1 +1,1 @@
-I also micro-manage this guy here: [@devbpd](https://github.com/devbpd)
+I also micromanage this guy here: [@devbpd](https://github.com/devbpd)
